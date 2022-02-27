@@ -28,7 +28,7 @@ Daniel Hernan Hernandes, Edad 40, Dueño de la Pasteleria HHCakes. Daniel es una
 
 Personalidad: Es una persona muy positiva y alegre. Le gusta tomar el liderazgo y tomar las decisiones. Disfruta de la compañía de sus amigos.
 
-Metas: Sueña con convertir a su concesionaria en la primera del estado. Fundar franquicias en todo el país. Invertir en nuevos emprendimientos. Tener una familia.
+Metas: Sueña con convertir a su Pasteleria en la primera del estado. Fundar franquicias en todo el país. Invertir en nuevos emprendimientos. Tener una familia.
 
 Frustraciones: Que tenga que hacer todo por sí mismo por incompetencia de sus empleados. Tener que lidiar con cuestiones legales. No tener suficiente tiempo para otras actividades. Que ya tiene treinta años y aún no se ha casado.
 
